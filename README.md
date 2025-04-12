@@ -3,7 +3,7 @@
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎              ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎               ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎![](https://komarev.com/ghpvc/?username=1980svalentine&color=a60505&style=plastic&label=fans&abbreviated=true)
 
 <p align="center">
-$\color{#a60505}{\textsf{" ☆ TLSH'S INTRO . . . .ᐟ  "}}$
+$\color{#a60505}{\textsf{" ☆ VALENTINE/EROS'S INTRO . . . .ᐟ  "}}$
 </p> 
 <p align="center">
 $\color{#a60505}{\textsf{> 18 + TAKEN + SYSTEM}}$
