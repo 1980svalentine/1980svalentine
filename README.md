@@ -1,4 +1,4 @@
-## Hi there 👋
+![image (1)](https://github.com/user-attachments/assets/1e854ee6-ba74-48c8-ac85-6bd96e7bfa90)
 
 <!--
 **1980svalentine/1980svalentine** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
