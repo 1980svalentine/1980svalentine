@@ -16,5 +16,4 @@ $\color{#a60505}{\textsf{ . < [STRAWPAGE](txt) + [CARRD](txt) . e}}$
 $\color{#a60505}{\textsf{﹒ @ USUALLY SITTING WITH MY PARTNER @1980sboyband ﹒*!¿*}}$
 </p>
 
-
 ![](https://komarev.com/ghpvc/?username=1980svalentinel&color=630303&style=flat&label=PROFILE+VIEWS&abbreviated=true)
