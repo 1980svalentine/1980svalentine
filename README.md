@@ -12,5 +12,7 @@ $\color{#a60505}{\textsf{♱ ; C+H + W2INT .ᐣ}}$
 </p>
 <p align="center">
 $\color{#a60505}{\textsf{. . . ꩜  check the links! ⋆｡ﾟ☁︎ }}$
-</p>
+</p> 
+
+ ![Screenshot_2025-04-12_3 56 48_PM-removebg-preview](https://github.com/user-attachments/assets/c8d78cb2-95b4-4c86-9e86-819f31962db4) 
  <p align ="left"> <img width="835" height="200" src = "https://github.com/user-attachments/assets/bc89f9de-d4aa-4624-8eb6-eaa1f3591529"></p> 
