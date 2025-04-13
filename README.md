@@ -5,13 +5,13 @@
 $\color{#a60505}{\textsf{" ☆ VALENTINE/EROS'S INTRO . . . .ᐟ  "}}$
 </p> 
 <p align="center">
-$\color{#a60505}{\textsf{> 18 + TAKEN + SYSTEM}}$
+$\color{#a60505}{\textsf{> 18 + TAKEN + SYSTEM .}}$
 </p>
 <p align="center">
 $\color{#a60505}{\textsf{♱ ; C+H + W2INT .ᐣ}}$
 </p>
 <p align="center">
-$\color{#a60505}{\textsf{. . . ꩜ CHECK THE LINKS-⋆｡ﾟ☁︎ }}$
+$\color{#a60505}{\textsf{. . . ꩜ CHECK THE LINKS -⋆｡ﾟ☁︎ }}$
 </p> 
 
  ![Screenshot_2025-04-12_3 56 48_PM-removebg-preview](https://github.com/user-attachments/assets/c8d78cb2-95b4-4c86-9e86-819f31962db4) 
