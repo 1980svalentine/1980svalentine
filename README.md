@@ -8,7 +8,7 @@ $\color{#a60505}{\textsf{" ☆ VALENTINE/EROS'S INTRO . . . .ᐟ  "}}$
 $\color{#a60505}{\textsf{> 18 + TAKEN  8 . 2 . 23  + OSDD SYSTEM .}}$
 </p>
 <p align="center">
-$\color{#a60505}{\textsf{♱ ; C+H + W2INT .ᐣ}}$
+$\color{#a60505}{\textsf{♱ ; C+H FREELY + W2INT PLS .ᐣ}}$
 </p>
 <p align="center">
 $\color{#a60505}{\textsf{. . . ꩜ CHECK THE LINKS - ⋆｡ﾟ☁︎ }}$
