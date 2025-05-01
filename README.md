@@ -5,7 +5,7 @@
 $\color{#a60505}{\textsf{" ☆ VALENTINE/EROS'S INTRO . . . .ᐟ  "}}$
 </p> 
 <p align="center">
-$\color{#a60505}{\textsf{> 18 + TAKEN  8 . 2 . 23  + SYSTEM .}}$
+$\color{#a60505}{\textsf{> 18 + TAKEN  8 . 2 . 23  + OSDD SYSTEM .}}$
 </p>
 <p align="center">
 $\color{#a60505}{\textsf{♱ ; C+H + W2INT .ᐣ}}$
