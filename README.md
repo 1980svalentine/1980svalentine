@@ -2,10 +2,10 @@
 
  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎              ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎               ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎![](https://komarev.com/ghpvc/?username=1980svalentine&color=a60505&style=plastic&label=livingㅤdead&abbreviated=true)
 <p align="center">
-$\color{#a60505}{\textsf{" ☆ VALENTINE/EROS'S INTRO . . . .ᐟ  "}}$
+$\color{#a60505}{\textsf{" ☆ VALENTINE/EROS' INTRO . . . .ᐟ  "}}$
 </p> 
 <p align="center">
-$\color{#a60505}{\textsf{> 18 + TAKEN  8 . 2 . 23  + OSDD SYSTEM .}}$
+$\color{#a60505}{\textsf{> 19 + TAKEN  8 . 2 . 23  + OSDD SYSTEM .}}$
 </p>
 <p align="center">
 $\color{#a60505}{\textsf{♱ ; C+H FREELY + W2INT PLS .ᐣ}}$
